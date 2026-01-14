@@ -12,4 +12,4 @@ Let's Connect:
 
 YouTube: [Grandson of Sitaram]
 
-Instagram/Twitter: @grandsonofsitaram
+Instagram/Linkdin: @grandsonofsitaram
